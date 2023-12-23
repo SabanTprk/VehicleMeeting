@@ -1,1 +1,1 @@
-[![Tanıtım Video](https://örnekbirlink.com/video.jpg)]([](https://www.linkedin.com/posts/toprak-saban_%C3%BCretken-akademi-oyun-geli%C5%9Ftirme-program%C4%B1n%C4%B1n-activity-7140636602279575552-UHvC?utm_source=share&utm_medium=member_desktop)
+[![Tanıtım Video](https://örnekbirlink.com/video.jpg)]([](https://www.linkedin.com/posts/toprak-saban)
